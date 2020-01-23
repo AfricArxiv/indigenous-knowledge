@@ -19,5 +19,5 @@ We aim to foster collaboration between African local/indigenous communites and r
 - Bioeconomy
 
 
-- Brainstorming call on Jan 21, 2020 // https://docs.google.com/document/d/1VDZVtxwkM_QAFetJcYkFVn2Oa-UQZ0ZD97SHlGKZiUI/edit#heading=h.zao9ao1uzynk
+- Brainstorming call on Jan 21, 2020 // https://docs.google.com/document/d/1VDZVtxwkM_QAFetJcYkFVn2Oa-UQZ0ZD97SHlGKZiUI/
 
